@@ -1,4 +1,6 @@
 # haron-team-albion_bot
+BTR - реклама http://cpb.ru/BTR_2023-10-14/
+
 угрозы http://cpb.ru/graa/
 
 кирочка http://cpb.ru/kirochka/ найдите ее родителей - девачку надо спасать

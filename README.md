@@ -1,9 +1,9 @@
 # haron-team-albion_bot
 угрозы http://cpb.ru/graa/
 
-кирочка http://cpb.ru/kirochka/
+кирочка http://cpb.ru/kirochka/ найдите ее родителей - девачку надо спасать
 
-Maksim Nemchenko http://cpb.ru/MaksimNemchenko/ ароде приличный перец несмотря на то что хохол))
+Maksim Nemchenko http://cpb.ru/MaksimNemchenko/ поклоннк кирочки, который местает ее долбануть но не щанет что она еврейка... Надо бы его привлечь за растение несовершеннолетних.
 
 
 ![image](https://github.com/vlaskinarita/haron-team-albion_bot/assets/120003563/89c1661c-42a7-4793-a4d4-568925711054)

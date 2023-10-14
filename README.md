@@ -3,6 +3,8 @@
 
 кирочка http://cpb.ru/kirochka/
 
+Maksim Nemchenko http://cpb.ru/MaksimNemchenko/ ароде приличный перец несмотря на то что хохол))
+
 
 ![image](https://github.com/vlaskinarita/haron-team-albion_bot/assets/120003563/89c1661c-42a7-4793-a4d4-568925711054)
 

@@ -1,4 +1,9 @@
 # haron-team-albion_bot
+угрозы http://cpb.ru/graa/
+
+кирочка http://cpb.ru/kirochka/
+
+
 ![image](https://github.com/vlaskinarita/haron-team-albion_bot/assets/120003563/89c1661c-42a7-4793-a4d4-568925711054)
 
 Внимание! категорически не реколмендуется запскать файл идущий в архиве для теста!!!
